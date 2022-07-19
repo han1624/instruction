@@ -21,3 +21,5 @@
 
 【温馨提示】：机器人由群主运营，后台服务器也由群主运营，由于群主工作缘故，不能及时对机器人出现的问题进行维护，所以有事留言机器人，私聊群主不回复。感谢你的阅读，祝你使用愉快。
 
+#### 点击次数快速加入解析群：<a target="_blank" href="https://qm.qq.com/cgi-bin/qm/qr?k=4SJ_EHTtjWd_JaMrzA5XHIzzrrcWFOSe&jump_from=webapi"><img border="0" src="//pub.idqqimg.com/wpa/images/group.png" alt="千图网素材解析✔" title="千图网素材解析✔"></a>
+
